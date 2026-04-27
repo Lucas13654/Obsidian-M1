@@ -1,0 +1,1 @@
+obsidian://open?vault=Obsidian%20Vault&file=DIE%20CAS%20PRATIQUE%20GALOP
